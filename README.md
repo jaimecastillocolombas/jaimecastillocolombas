@@ -3,10 +3,11 @@
 Business Administration + Business Analytics student at **ICADE (Universidad Pontificia Comillas, Madrid)**, working where finance meets data.
 
 - 💼 Search Fund Analyst Intern at **Memorable Capital** (target screening, LBO models, investment presentations); previously **Credit Risk Intern at PwC** (IFRS 9, SAS, VBA)
+- 🤝 Volunteer: built SAUCE for a medical NGO in Cambodia; taught personal finance workshops with Cruz Roja Española
 - 🌍 Exchanges at UCLouvain (Belgium) and Emory University, Goizueta Business School (spring 2027)
 - 🎯 Looking for summer 2027 and off-cycle internships in investment banking, private equity, fintech and consulting
 
-**[Personal page](https://jaimecastillocolombas.github.io)** · **[LinkedIn](https://www.linkedin.com/in/jaime-castillo-204a28293)**
+**[Personal page](https://jaimecastillocolombas.github.io)** · **[LinkedIn](https://www.linkedin.com/in/jaime-castillo-204a28293)** · **[Email](mailto:jaimecrolombas@gmail.com)**
 
 ---
 
